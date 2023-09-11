@@ -7,9 +7,11 @@
 
 - 😄 Pronouns : She/Her'
 
-- Hobbies : Anime, playing games, Read book  
+- Hobbies : Anime, playing games, Read book
 
-- ⚡ Fun fact : **I Studying 2 degree 1. Faculty of Law 2. CS [Data science and Cybersecurity ]**
+- **I Studying 2 degree 1. Faculty of Law 2. CS [Data science and Cybersecurity ]** 
+
+- ⚡ Fun fact : I have twins 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
